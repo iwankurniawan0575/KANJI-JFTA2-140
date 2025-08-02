@@ -1,0 +1,2 @@
+# KANJI-JFTA2-140
+JFT
